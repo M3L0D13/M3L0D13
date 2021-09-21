@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @M3L0D13
+- 👀 I’m interested in Arts,Music and in programming * ੈ✩‧₊˚
+- 🌱 I’m currently learning some lenguages and programming *.°•*.
+- 💞️ I’m looking to collaborate on something <3 ☾
+- 📫 You can reach me by discord ✩
+- ☕ Here's my user 『 M3lodie#4526 』ღ
